@@ -1,3 +1,9 @@
 My name is CWhide👀
-QQ:151673432
-邮箱：CWhide@163.com
+
+Location位置:Zhejiang,China,Earth
+
+My Email邮箱
+    CWhide@163.com     （常用）
+    cwhide2007@outlook.com
+    
+    Mithrandirwhite@cock.li
