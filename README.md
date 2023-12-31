@@ -1,6 +1,6 @@
 My name is CWhide👀
 
-Location位置:Zhejiang,China,Earth
+Location位置:China,Earth
 
 My Email邮箱
 
